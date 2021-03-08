@@ -1,0 +1,8 @@
+# Globe-trotter 
+Recognizing the huge commercial success of Bly’s work to date, other American newspapers scrambled to hire their own “stunt girls.” But Bly stood out because “along with derring-do and excitement, she had a social agenda that was always present in her work,” according to Brooke Kroeger, author of Nellie Bly: Daredevil, Reporter, Feminist.  
+
+In fall 1889, as the World opened new headquarters, Pulitzer wanted a big, attention-grabbing story. Bly proposed an around-the-world race to break the fictional record set by Phileas Fogg in Jules Verne’s 1873 novel Around the World in Eighty Days. Pulitzer thought the idea better suited to a man. “Very well,” Bly said, “Start the man, and I’ll start the same day for some other newspaper and beat him.” Pulitzer wisely reconsidered.
+
+Bly set off from Hoboken, New Jersey, on November 14, 1889. Among her many adventures was a meeting with Jules Verne in France. Verne, age 61, told her: “If you do it in 79 days, I shall applaud with both hands.” She would win his applause handily, completing the trip in a record-breaking 72 days. When she stepped off the train in Jersey City, thousands cheered her. At 25, she was America’s first celebrity journalist. (Meet the solo women sailors that race around the world.)
+
+Her book Around the World in Seventy­ Two Days was published soon after, joining her other books based on her reporting: Ten Days in a Madhouse (1887) and Six Months in Mexico (1888). Her literary success did not carry over into fiction, however, with the 1889 publication of The Mystery of Central Park, being her one and only novel.
